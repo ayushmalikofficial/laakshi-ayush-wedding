@@ -1,2 +1,2 @@
-# laakshi-ayush-wedding
-Laakshi &amp; Ayush's Invite
+# Laakshi &amp; Ayush's Invite
+Invite for Wedding
